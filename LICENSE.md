@@ -1,4 +1,4 @@
-# 
+# XMind for Windows vip Plugin: themes & real-time-sync is the best XMind for Windows plugin, featuring themes and real-time-sync. Powerful, efficient, and optimized for Windows
 
 
 
